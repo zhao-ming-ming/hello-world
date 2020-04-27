@@ -1,4 +1,6 @@
 # hello-world
 test my ability
-i am a stronger
 you are excellent boy.
+i love you
+please give me one chance 
+this is a wonderful experience
